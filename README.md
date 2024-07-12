@@ -3,4 +3,4 @@
 
 Protestnachricht von Berliner Eltern an die verhandelnden Tarifpartner. 
 
-Veröffentlicht auf https://gamstc.github.io/warnstreik-gew/ 
+Veröffentlicht auf https://gamstc.github.io/warnstreiks-verdi/ 
